@@ -12,4 +12,4 @@ is a website containing different kinds of artists from the K-pop music industry
 4. "New Jeans 1st EP" by New Jeans 
 5. "BORN PINK" by Blackpink Vol. 2
 
->>> **Breaking News** <<<
+### >>> **Breaking News** 

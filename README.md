@@ -13,4 +13,4 @@
 5. "BORN PINK" by Blackpink Vol. 2
 
 ### ||| **Breaking News** |||
-*STREAM NEW JEANS*['Youtube'](https://www.youtube.com/watch?v=Gw2jHej29QE)
+*STREAM NEW JEANS* ['Youtube'](https://www.youtube.com/watch?v=Gw2jHej29QE)

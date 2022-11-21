@@ -5,7 +5,7 @@
 ![alt image](https://64.media.tumblr.com/2044be442a9b9c91295d53f3dfa17a5a/d9c642f23bd55d81-69/s540x810/d01dc4cdb4f9dba955d43015d56772bf951dcbcd.gifv)
 
 
-## **TOP 5 ALBUMS MUSIC CHART** 
+## **🎉TOP 5 ALBUMS MUSIC CHART🎉** 
 1. "I love" 5th mini album by (G)I-DLE
 2. "ANTIFRAGILE" 2nd mini album by LE SERRAFIM 
 3. "The Astronaut" Jin from BTS 1st single 

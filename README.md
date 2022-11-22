@@ -1,5 +1,7 @@
 # *reivee* 
-Hi I'm Jastine L. Malapo!! bla bla bla || Everything to know about **Twice** ||
+website made by Jastine Malapo
+
+|| Everything to know about **Twice** ||
 
 Who are they?
 > TWICE is one of the most iconic K-pop groups ever. They have broken record after record and are hugely successful in South Korea and around the world.

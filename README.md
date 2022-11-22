@@ -1,5 +1,5 @@
 # *reivee* 
-website made by Jastine Malapo
+website made by *Jastine Malapo*
 
 || Everything to know about **Twice** ||
 

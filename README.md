@@ -63,7 +63,9 @@ Tell me what you want, tell me what you need
 Talk that talk, 딱 한 마디 (love, love, love), talk that talk, L-O-V-E
 들려줘, ooh, now, now, now, now, now, yeah (yeah, turn it up)
 
-### >> **Stream where?** 
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/artist/7n2Ycct7Beij7Dj7meI4X0?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe> 
+
 *STREAM TWICE* 
 | ['Youtube'](https://www.youtube.com) | 
  [Spotify](https://open.spotify.com/artist/7n2Ycct7Beij7Dj7meI4X0?si=ut8BJfb3TAOBkxkzKfaJGA) |
